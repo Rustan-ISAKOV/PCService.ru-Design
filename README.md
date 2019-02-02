@@ -1,1 +1,1 @@
-# Web Site: PCService.kg: PSD Design, Advertisement Posters, Graphic Elements
+# Web Site: PCService.com.kg: PSD Design, Advertisement Posters, Graphic Elements
